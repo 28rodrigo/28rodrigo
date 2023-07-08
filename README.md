@@ -13,7 +13,7 @@ I am a Master's student in Informatics Engineering, fueled by a profound passion
 - **University:** Universidade de Trás-os-Montes e Alto Douro (UTAD)
 - **Year:** 2018 - 2021
 
-### Master in Informatics Engineering
+### Master in Informatics Engineering (Working on it)
 - **University:** Universidade de Trás-os-Montes e Alto Douro (UTAD)
 - **Year:** 2021 - 2023
 
